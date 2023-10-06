@@ -1,6 +1,6 @@
 # OptimusAI-airdrop
 
-<a href="https://ibb.co/Jc6zDLb"><img src="https://i.ibb.co/RgrCRnM/1-Bx384gq8o842-Qif-FKv-WJbg.png" alt="1-Bx384gq8o842-Qif-FKv-WJbg" border="0"></a>
+<a href="https://nftereum.org/tokens/optimusAI-airdrop"><img src="https://i.ibb.co/RgrCRnM/1-Bx384gq8o842-Qif-FKv-WJbg.png" alt="1-Bx384gq8o842-Qif-FKv-WJbg" border="0"></a>
 
 Claim 1,000 $OPTI Tokens Airdrop:
 
